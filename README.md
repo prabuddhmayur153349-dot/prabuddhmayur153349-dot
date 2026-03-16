@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Prabuddh Mayur cruntly studing Engineering at SIT<br>I am Gamedev<br>I am Gamedeve at UNITY,UNREAL<br>C/C++,Python
+I am Prabuddh Mayur cruntly studing Engineering at SIT<br>I am Gamedev<br>I am Gamedev at UNITY,UNREAL<br>C/C++,Python
 
 
 ## 🌐 Socials:
