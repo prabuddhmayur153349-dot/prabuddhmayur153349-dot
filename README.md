@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Prabuddh Mayur cruntly studing Engineering at SIT<br>SCOUT | Community Leader | Tournament Organizer @Free Fire Max Community India <br> SPARTANS | Student Brand Ambassador 
+I am Prabuddh Mayur cruntly studing Engineering <br>SCOUT | Community Leader | Tournament Organizer @Free Fire Max Community India <br> SPARTANS | Student Brand Ambassador 
 @TEC - The Esports Club<br>Tournament Director | League Operations- REX E-SPORTS, TZ E-SPORTS, Nx9 E-SPORTS<br>I Am Gamer|Game.dev - I Break Egos,Not Hearts<br>I am Game.dev at UNITY,UNREAL<br>C/C++,Python
 
 
